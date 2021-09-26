@@ -6,3 +6,4 @@ hrthrt
 hdthdt
 haşhaşlı börek 
 Yaptım 
+Bir 
