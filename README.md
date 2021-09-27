@@ -3,7 +3,7 @@ frank
 hh
 sen 
 hrthrt
-hdthdt
+hdthdtbth
 haşhaşlı börek 
 Yaptım 
 Bir 
