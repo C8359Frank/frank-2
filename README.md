@@ -5,5 +5,5 @@ sen
 hrthrt
 hdthdtbth
 haşhaşlı börek 
-Yaptım 
+Yaptım efa
 Bir 
