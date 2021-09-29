@@ -2,7 +2,7 @@
 frank
 hh
 sen 
-hrthrt
+hrthrtvx
 hdthdtbth
 haşhaşlı börek 
 Yaptım efaczcxz
